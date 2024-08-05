@@ -1,6 +1,6 @@
 ## Hey there, this is Aptive :wave:
 
-![Share home with family, not pests](https://p9m3u3f2.rocketcdn.me/wp-content/uploads/2023/06/aptive-pest-control-home-page-hero-1.jpg)
+![image](https://github.com/user-attachments/assets/101ebc67-2811-4559-ab38-88b50d5e96cb)
 
 ## A better world begins with a better home.
 
